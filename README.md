@@ -6,4 +6,4 @@
 
 http://www.zone-h.org/archive/notifier=Hucking?hz=1
 @rootme : Kanashiki 
-website : https://darlingch33ts.xyz/
+website : https://ssl.com
